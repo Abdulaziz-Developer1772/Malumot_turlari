@@ -1,0 +1,1 @@
+# Malumot_turlari
